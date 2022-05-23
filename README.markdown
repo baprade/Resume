@@ -1,3 +1,0 @@
-# My CV
-
-Hai ho~
